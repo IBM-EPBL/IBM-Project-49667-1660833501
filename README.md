@@ -21,7 +21,7 @@
 
 **Team member :** Hariharasudhan A 
 
-**Team member :** Bramoth Kumar A
+**Team member :** Bramoth Kumar A 
 
 ---
 **Industry Mentor(s) Name :** Krishna Chaitanya
